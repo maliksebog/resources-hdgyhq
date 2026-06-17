@@ -19,7 +19,6 @@
 - https://sites.google.com/view/gohsxubaryoynywh9b
 - https://sites.google.com/view/iqoznibhflbzezv89s
 - https://sites.google.com/view/tsypgkjvmbtv8m7qyu
-- http://c.kfmail.top/c/resources-hdgyhq
 - https://sites.google.com/view/iini8whap3b78vrvy9
 - https://sites.google.com/view/pcsc0kd8do3mrcdcbh
 - https://sites.google.com/view/r6xmen3g5x0w3grvzn
@@ -63,7 +62,6 @@
 - https://sites.google.com/view/fn2eub2kp432txo6jd
 - https://sites.google.com/view/qdc0zu19h3ot5e1sk0
 - https://sites.google.com/view/hurq4jf5d7lujwcqfi
-- http://c.kfmail.top/c/resources-hdgyhq
 - https://sites.google.com/view/bc875v3qg2kneppxx5
 - https://sites.google.com/view/xjvd82ohi2i9ravi89
 - https://sites.google.com/view/lrflvkdmtkqe1i7alt
@@ -85,7 +83,6 @@
 - https://sites.google.com/view/z72t7f0y9m0tiv8484
 - https://sites.google.com/view/qme4v2mifzbomauw9b
 - https://sites.google.com/view/qgnxyo68vbz46vklr1
-- http://c.kfmail.top/c/resources-hdgyhq
 - https://sites.google.com/view/nw1q8f0vvf0e1mptx8
 - https://sites.google.com/view/v620kyil2qrep6xvb7
 - https://sites.google.com/view/fs6ko1e5x4md1h5nnl
@@ -124,6 +121,7 @@
 - https://sites.google.com/view/fimz4d68o7rm7fyudf
 - https://sites.google.com/view/tac3633looah7fn13q
 - https://sites.google.com/view/fw0ijyke68xtamw4zv
+- http://43.133.171.72/c/resources-hdgyhq
 - https://sites.google.com/view/qgen0m53njzoimvuzo
 - https://sites.google.com/view/ei8rlqzb7djm8z26d5
 - https://sites.google.com/view/qfuioj71v612pb952k
@@ -273,6 +271,7 @@
 - https://sites.google.com/view/ljmrc5aef4ai9a4h06
 - https://sites.google.com/view/jt4916a9rx30cha7el
 - https://sites.google.com/view/hnuyhpm4j534sih22w
+- http://43.133.171.72/c/resources-hdgyhq
 - https://sites.google.com/view/khwz3332hqwq6yyaab
 - https://sites.google.com/view/u2nlhqnjqc08e41a3s
 - https://sites.google.com/view/j0ofpd9ihybblqvxey
@@ -287,6 +286,7 @@
 - https://sites.google.com/view/l87jiz42sgm4qldpd6
 - https://sites.google.com/view/h2d12918b445b75kld
 - https://sites.google.com/view/jew74pbgalivsdjs3z
+- http://43.133.171.72/c/resources-hdgyhq
 - https://sites.google.com/view/lb9sycxk3tzq24fx8h
 - https://sites.google.com/view/jedlu5htdfcumafitd
 - https://sites.google.com/view/oxycd5lafpqv1bv8h4
